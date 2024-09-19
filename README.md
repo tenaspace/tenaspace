@@ -1,1 +1,1 @@
-👋 Hi, I’m @tenaspace
+👋 Hi, I’m tenaspace
