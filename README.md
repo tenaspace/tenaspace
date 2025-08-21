@@ -1,1 +1,1 @@
-👋 Xin chào, chúng tôi là tenaspace
+👋 Xin chào!
